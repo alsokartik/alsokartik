@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an aspiring AIML Engineer.
+I am an aspiring AIML Engineer/Student.
 
 
 ## 🌐 Socials:
